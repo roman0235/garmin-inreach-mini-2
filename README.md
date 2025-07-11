@@ -1,0 +1,1 @@
+# garmin-inreach-mini-2
